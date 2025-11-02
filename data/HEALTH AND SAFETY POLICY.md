@@ -2,7 +2,7 @@
 
 **HEALTH AND SAFETY POLICY**
 
-**ARK Co-Living Ltd**
+**GOP Co-Living Ltd**
 
 **December 2024**
 
@@ -94,23 +94,23 @@ Provided by:
 
 # INTRODUCTION
 
-This policy is available to access by all employees and officers of ARK Co-Living Ltd and any other interested person that may be affected by our work or activities.
+This policy is available to access by all employees and officers of GOP Co-Living Ltd and any other interested person that may be affected by our work or activities.
 
 Electronic copies can be provided on request.
 
 All employees are encouraged to fully familiarise themselves with this policy and accompanying documentation. Employees are required to confirm that they are aware of and understand the contents of this policy. If they are unsure of or do not understand any aspect, they should speak to their Manager at the earliest opportunity for clarification.
 
-We ensure that this policy is managed effectively by regularly monitoring the policy (at least annually) and revising when necessary. Revisions and amendments may be necessary to reflect legislative change, or changes that have taken place within ARK Co-Living Ltd. Employees are informed when revisions or amendments are made.
+We ensure that this policy is managed effectively by regularly monitoring the policy (at least annually) and revising when necessary. Revisions and amendments may be necessary to reflect legislative change, or changes that have taken place within GOP Co-Living Ltd. Employees are informed when revisions or amendments are made.
 
-ARK Co-Living Ltd encourages all employees to inform the Management of any aspect of this policy which they consider to be inadequate, ineffective, or in any other way unsuitable; with a view to ensuring that this policy is maintained as a true working document.
+GOP Co-Living Ltd encourages all employees to inform the Management of any aspect of this policy which they consider to be inadequate, ineffective, or in any other way unsuitable; with a view to ensuring that this policy is maintained as a true working document.
 
-ARK Co-Living Ltd accepts that the responsibility for health, safety and welfare is ultimately with the Managing Director, and accepts the duty under law to provide a working environment that is free from danger or hazard, so far as is reasonably practicable.
+GOP Co-Living Ltd accepts that the responsibility for health, safety and welfare is ultimately with the Managing Director, and accepts the duty under law to provide a working environment that is free from danger or hazard, so far as is reasonably practicable.
 
 **Effective Health, Safety and Welfare management is a priority and will never be compromised for any other objectives.**
 
 # POLICY STATEMENT OF INTENT
 
-ARK Co-Living Ltd believes that the effective management of health and safety is an essential element within its overall business plan. An effective and practical health and safety ethos is reflected in high productivity and quality standards.
+GOP Co-Living Ltd believes that the effective management of health and safety is an essential element within its overall business plan. An effective and practical health and safety ethos is reflected in high productivity and quality standards.
 
 We engage the services of Rhino Safety Limited, an external Health & Safety consultancy, to provide us with expert advice, support and guidance. This demonstrates our commitment to the continuous monitoring and improvement of health, safety and welfare in our workplace, with a view to achieving high standards and best practices.
 
@@ -131,7 +131,7 @@ We are committed to full compliance with all health and safety legislation. When
 * To review and (where appropriate) revise this policy regularly, and to assess its ongoing effectiveness.
 * Ultimately, to maintain a safe and healthy working environment.
 
-*Signed on behalf of* ARK Co-Living Ltd:
+*Signed on behalf of* GOP Co-Living Ltd:
 
 *Name:*
 
@@ -145,18 +145,18 @@ We are committed to full compliance with all health and safety legislation. When
 
 The responsibilities of the Directors are to:
 
-* Be responsible for the implementation of the ARK Co-Living Ltd Health and Safety Policy.
-* Regularly (at least annually) review the Health and Safety Policy to ensure that it remains in compliance with ARK Co-Living Ltd’s objectives for Health and Safety.
+* Be responsible for the implementation of the GOP Co-Living Ltd Health and Safety Policy.
+* Regularly (at least annually) review the Health and Safety Policy to ensure that it remains in compliance with GOP Co-Living Ltd’s objectives for Health and Safety.
 * Ensure that Management and employees at all levels fully understand the arrangements for the implementation of the Health and Safety Policy.
-* Ensure that all levels of Management and employees are aware of and carry out their responsibilities and obligation to comply with the ARK Co-Living Ltd Health & Safety policy (and other related rules or procedures) that are in place at their actual place of work.
+* Ensure that all levels of Management and employees are aware of and carry out their responsibilities and obligation to comply with the GOP Co-Living Ltd Health & Safety policy (and other related rules or procedures) that are in place at their actual place of work.
 * Ensure that all health and safety issues are communicated promptly and effectively.
 * Ensure that sufficient funds/resources are allocated within the company budget for the requirements of health, safety, and welfare provisions.
 * Ensure that statutory insurance cover is in place, and that the current statutory Certificate is displayed in a prominent position.
 * Ensure that open and transparent consultations between Management and employees take place at regular intervals.
-* Ensure that contractors, temporary workers, visitors etc., adhere to the ARK Co-Living Ltd health and safety rules and procedures and any other relevant legislation.
-* Ensure that all risk and hazard assessments relating to the activities and hazards of ARK Co-Living Ltd are completed and recorded; the results communicated to all employees; and that the assessments are reviewed regularly (at least annually and/or whenever change occurs).
+* Ensure that contractors, temporary workers, visitors etc., adhere to the GOP Co-Living Ltd health and safety rules and procedures and any other relevant legislation.
+* Ensure that all risk and hazard assessments relating to the activities and hazards of GOP Co-Living Ltd are completed and recorded; the results communicated to all employees; and that the assessments are reviewed regularly (at least annually and/or whenever change occurs).
 * Ensure that safe access and egress throughout the workplace is provided and maintained.
-* Ensure that suitable and sufficient Personal Protective Equipment (PPE), if appropriate, is provided for any relevant hazards within ARK Co-Living Ltd’s premises, or operations elsewhere by their employees.
+* Ensure that suitable and sufficient Personal Protective Equipment (PPE), if appropriate, is provided for any relevant hazards within GOP Co-Living Ltd’s premises, or operations elsewhere by their employees.
 * Ensure that appropriate First Aid personnel and resources are provided; and that employees are aware of the identity of First Aid personnel, the location of facilities, and the requirement to record all accidents/incidents, either in the Accident Book, or in another approved format.
 * Ensure that adequate fire-fighting equipment is provided, and to ensure that all maintenance records are kept complete and up to date.
 * Ensure that there are suitable means of raising the alarm in the event of a fire, and that checks are carried as per the statutory guidelines.
@@ -170,10 +170,10 @@ The responsibilities of the Directors are to:
 
 ## EMPLOYEES
 
-Health and Safety legislation requires ARK Co-Living Ltd employees to accept and comply with the following responsibilities:
+Health and Safety legislation requires GOP Co-Living Ltd employees to accept and comply with the following responsibilities:
 
-* To take all reasonable care of their own health, safety and welfare; and that of any other person who may be affected by their actions or failure to act; and to cooperate with ARK Co-Living Ltd and its Directors to enable them to fulfil their own responsibilities successfully.
-* To always follow safety rules; to avoid improvisation, and to comply with the ARK Co-Living Ltd health and safety policy (*and any policy and requirements in place at their working site*).
+* To take all reasonable care of their own health, safety and welfare; and that of any other person who may be affected by their actions or failure to act; and to cooperate with GOP Co-Living Ltd and its Directors to enable them to fulfil their own responsibilities successfully.
+* To always follow safety rules; to avoid improvisation, and to comply with the GOP Co-Living Ltd health and safety policy (*and any policy and requirements in place at their working site*).
 * To only undertake work or actions in they are qualified or competent; to carry out their work in a safe manner in accordance with instructions.
 * To never participate in horseplay or other actions that could place them or those affected by their actions at risk of harm.
 * To always use, transport, and store materials, equipment and tools in a safe and secure manner.
@@ -181,13 +181,13 @@ Health and Safety legislation requires ARK Co-Living Ltd employees to accept and
 * To always wear suitable clothing and personal protective equipment (PPE) for the task being undertaken.
 * To always report any unsafe action or condition, including hazards, defective equipment, unsafe practices, accidents and near misses.
 
-Under no circumstances must an employee or employees purposely interfere with, or misuse, or compromise, any item or resource (*e.g. guards, signs, and firefighting equipment*) provided in the interests of the health, safety or welfare of ARK Co-Living Ltd staff or other persons.
+Under no circumstances must an employee or employees purposely interfere with, or misuse, or compromise, any item or resource (*e.g. guards, signs, and firefighting equipment*) provided in the interests of the health, safety or welfare of GOP Co-Living Ltd staff or other persons.
 
 ## EXTERNAL HEALTH AND SAFETY CONSULTANCY
 
 The responsibility of Rhino Safety Limited is to:
 
-* ARK Co-Living Ltd on Health and Safety issues and legal compliances.
+* GOP Co-Living Ltd on Health and Safety issues and legal compliances.
 * To inform the company on any updates to legislation and advise on the effects of any updated legislation to the company.
 * Prepare any Health and Safety documentation as required (risk assessments etc.).
 * To assist in the regular review and revision of the Health and Safety documentation applicable to the company.
@@ -195,9 +195,9 @@ The responsibility of Rhino Safety Limited is to:
 
 ## INFORMATION FOR EMPLOYEES
 
-ARK Co-Living Ltd is required to provide certain information regarding health and safety legislation to all their employees. We comply with this requirement by displaying the approved Health and Safety Information poster on our premises. This poster is kept in a readable condition. For remote employees, we ensure the approved Health and Safety Information leaflet is provided.
+GOP Co-Living Ltd is required to provide certain information regarding health and safety legislation to all their employees. We comply with this requirement by displaying the approved Health and Safety Information poster on our premises. This poster is kept in a readable condition. For remote employees, we ensure the approved Health and Safety Information leaflet is provided.
 
-# ORGANISATIONAL CHART - Ark
+# ORGANISATIONAL CHART - GOP
 
 ![A chart of a company  Description automatically generated](data:image/png;base64...)
 
@@ -213,7 +213,7 @@ We recognise that there are other ways in which harm may be caused during our wo
 
 ## SAFETY CULTURE
 
-It is the policy of ARK Co-Living Ltd that a positive Health and Safety culture is promoted throughout the company. Safety culture means “the way we do things around here with regards to Health and Safety” and is a collective ownership of Health and Safety responsibilities through every level of the company structure, including all management and employees.
+It is the policy of GOP Co-Living Ltd that a positive Health and Safety culture is promoted throughout the company. Safety culture means “the way we do things around here with regards to Health and Safety” and is a collective ownership of Health and Safety responsibilities through every level of the company structure, including all management and employees.
 
 We recognise that the behaviour of employees is a significant factor in maintaining a positive safety culture. Management must embody and demonstrate positive safety attitudes and practices to model the behaviours we want employees to replicate. We believe in monitoring behaviour as a proactive management strategy, because identifying at-risk behaviours and taking action to correct them results in fewer accidents due to early identification of problems. Therefore, we encourage employees to proactively identify and report any and all unsafe practices they may observe in the workplace.
 
@@ -245,7 +245,7 @@ We recognise that the behaviour of employees is a significant factor in maintain
 
 # CONSTRUCTION (DESIGN & MANAGEMENT) REGULATIONS 2015
 
-Cross Tree are the investment company and Ark are the Operational team
+Cross Tree are the investment company and GOP are the Operational team
 
 The Aims of the Regulations are to help everyone:
 
@@ -258,7 +258,7 @@ The Aims of the Regulations are to help everyone:
 
 ## CONSTRUCTION PHASE PLAN
 
-The client must ensure that a construction phase plan for the project is prepared before the construction phase begins. The plan outlines the health and safety arrangements, site rules and specific measures concerning any work involving the particular risks. For single-contractor projects that ARK Co-Living Ltd are working on, we will ensure we prepare the plan. For projects involving more than one contractor, it is the principal contractor’s duty.
+The client must ensure that a construction phase plan for the project is prepared before the construction phase begins. The plan outlines the health and safety arrangements, site rules and specific measures concerning any work involving the particular risks. For single-contractor projects that GOP Co-Living Ltd are working on, we will ensure we prepare the plan. For projects involving more than one contractor, it is the principal contractor’s duty.
 
 ## THE HEALTH AND SAFETY FILE
 
@@ -287,7 +287,7 @@ This will typically be achieved through pre-start meetings, inductions, regular 
 
 ## CLIENT
 
-When ARK Co-Living Ltd acts as the operations team during a project, we will ensure that we make suitable arrangements for managing their project, enabling those carrying it out to manage health and safety risks in a proportionate way. These arrangements include:
+When GOP Co-Living Ltd acts as the operations team during a project, we will ensure that we make suitable arrangements for managing their project, enabling those carrying it out to manage health and safety risks in a proportionate way. These arrangements include:
 
 * Appointing the contractors and designers to the project (including the principal designer and principal contractor on projects involving more than one contractor) while making sure they have the skills, knowledge, experience and organisational capability.
 * Allowing sufficient time and resources for each stage of the project.
@@ -300,7 +300,7 @@ When ARK Co-Living Ltd acts as the operations team during a project, we will ens
 
 # CONTRACTOR & SUPPLY CHAIN SELECTION
 
-ARK Co-Living Ltd has adopted a policy that we will only work with contractors and suppliers who can demonstrate and validate their commitment to high standards of health and safety. As such, all contractors and suppliers will be selected via a process that substantiates their competency.
+GOP Co-Living Ltd has adopted a policy that we will only work with contractors and suppliers who can demonstrate and validate their commitment to high standards of health and safety. As such, all contractors and suppliers will be selected via a process that substantiates their competency.
 
 ## Management Controls
 
@@ -367,16 +367,16 @@ The provision of eyesight tests for present and future users of DSE is available
 
 Repeat testing is to be at the discretion of the optometrist conducting the test. However, there is no compulsion on employees to undergo tests against their will.
 
-Where the user experiences difficulties with DSE the employer should provide eye/eyesight tests as soon as possible. ARK Co-Living Ltd will meet the cost of providing a full eye / eyesight test with an optometrist or doctor; and will contribute towards the cost of any corrective equipment (such as spectacles) that are prescribed specifically for use with DSE.
+Where the user experiences difficulties with DSE the employer should provide eye/eyesight tests as soon as possible. GOP Co-Living Ltd will meet the cost of providing a full eye / eyesight test with an optometrist or doctor; and will contribute towards the cost of any corrective equipment (such as spectacles) that are prescribed specifically for use with DSE.
 
 # DRUGS AND ALCOHOL
 
-ARK Co-Living Ltd recognises that both the health of the individual and the safety of the workplace are paramount in achieving the goals of the business as a whole. Employees can be at risk from misuse of alcohol and drugs, both cause effects on individuals which can manifest themselves in the workplace leading to increased risk of accidents, sickness absence, and disciplinary problems and reduced efficiency.
+GOP Co-Living Ltd recognises that both the health of the individual and the safety of the workplace are paramount in achieving the goals of the business as a whole. Employees can be at risk from misuse of alcohol and drugs, both cause effects on individuals which can manifest themselves in the workplace leading to increased risk of accidents, sickness absence, and disciplinary problems and reduced efficiency.
 
-**Under this policy ARK Co-Living Ltd requires that:**
+**Under this policy GOP Co-Living Ltd requires that:**
 
 * We are compliant with relevant current legislation relating to substance abuse i.e. The Health & Safety at Work etc Act 1974, the Misuse of Drugs Act 1971, the Transport and Works Act 1992 and where relevant the Railways (Safety Critical Work) Regulations 1994.
-* ARK Co-Living Ltd employees, consultants, contractors or sub-contractors must not try to report for work if they are unfit through alcohol, illegal drugs or prescription drugs.
+* GOP Co-Living Ltd employees, consultants, contractors or sub-contractors must not try to report for work if they are unfit through alcohol, illegal drugs or prescription drugs.
 * When at work employees must not consume alcohol or illegal drugs or be in possession of these items nor be involved in the sale or distribution of alcohol or illegal drugs on any company premises.
 * Measures to prevent any person attending work under the influence of alcohol or illegal drugs may include testing at pre-employment, post incident or ‘for cause’ and random unannounced testing.
 * Anyone identifying themselves as having a problem will be supported positively and confidentially with guidance, and information and where applicable referral for treatment to overcome the alcohol and/or drugs problems. **Help must be requested prior to testing**.
@@ -401,7 +401,7 @@ It is the responsibility of the Director to ensure that key staff are prepared t
 
 # ENGLISH AS AN ADDITIONAL LANGUAGE
 
-Where English is not the first language of an employee, contractor or other person affected by our work activities, ARK Co-Living Ltd recognises the risk that lack of understanding could be a contributing factor in an accident or incident.
+Where English is not the first language of an employee, contractor or other person affected by our work activities, GOP Co-Living Ltd recognises the risk that lack of understanding could be a contributing factor in an accident or incident.
 
 ## Management Controls
 
@@ -419,13 +419,13 @@ Where English is not the first language of an employee, contractor or other pers
 
 # FIRE SAFETY
 
-Strict compliance with fire safety instructions is necessary to ensure the safety of all staff and visitors to the premises of ARK Co-Living Ltd. The fire assembly point is clearly signed and communicated during induction.
+Strict compliance with fire safety instructions is necessary to ensure the safety of all staff and visitors to the premises of GOP Co-Living Ltd. The fire assembly point is clearly signed and communicated during induction.
 
 ## Management Controls
 
 * Senior Management are responsible for ensuring that each member of staff is aware of these instructions and is also familiar with the procedures to be followed in the case of a fire or fire alarm.
-* All staff are briefed by a nominated and competent person on the fire safety arrangements of ARK Co-Living Ltd at least once a year. Such training is recorded and held on the premises. The training record is signed by the employee, to formally confirm their understanding of that training.
-* ARK Co-Living Ltd nominates a person to be responsible for ensuring that employee training in fire safety is carried out as necessary. The person responsible is competent in fire safety and arranges the necessary training in accordance with the following guidelines:
+* All staff are briefed by a nominated and competent person on the fire safety arrangements of GOP Co-Living Ltd at least once a year. Such training is recorded and held on the premises. The training record is signed by the employee, to formally confirm their understanding of that training.
+* GOP Co-Living Ltd nominates a person to be responsible for ensuring that employee training in fire safety is carried out as necessary. The person responsible is competent in fire safety and arranges the necessary training in accordance with the following guidelines:
 
 ## Duties of the nominated and competent person responsible for fire safety
 
@@ -505,7 +505,7 @@ At the end of the day a check is made of all rooms to ensure that:
 
 ## FACILITIES AND EQUIPMENT
 
-ARK Co-Living Ltd will provide suitable and sufficient First Aid facilities and equipment as required by the relevant legislation.
+GOP Co-Living Ltd will provide suitable and sufficient First Aid facilities and equipment as required by the relevant legislation.
 
 ## FIRST AID PERSONNEL
 
@@ -542,7 +542,7 @@ These contents must be examined regularly and restocked when necessary (includin
 
 # FOOD HYGIENE & KITCHEN PROCEDURES
 
-ARK Co-Living Ltd requires that all food within the building is produced, stored and handled to the highest standards of hygiene to meet the requirements of the relevant Regulations.
+GOP Co-Living Ltd requires that all food within the building is produced, stored and handled to the highest standards of hygiene to meet the requirements of the relevant Regulations.
 
 The purpose of food safety legislation is to ensure the health and safety of the consumer by providing controls over the production, storage, preparation and sale of food throughout the country.
 
@@ -618,7 +618,7 @@ All work areas are kept clean and tidy with waste removed at regular intervals a
 
 ## SLIPS, TRIPS & FALLS
 
-Housekeeping of our premises is maintained to a high standard and we commit to reduce preventable workplace slips, trips and falls incidents through appropriate risk assessment, effective planning and positive management. ARK Co-Living Ltd is committed to preventing or minimising the risk of slips, trips and falls to anyone who visits or uses our premises by providing a safe working environment and, as far as is reasonably practicable, ensuring any slip, trip and fall hazards in the workplace are identified, reported and rectified.
+Housekeeping of our premises is maintained to a high standard and we commit to reduce preventable workplace slips, trips and falls incidents through appropriate risk assessment, effective planning and positive management. GOP Co-Living Ltd is committed to preventing or minimising the risk of slips, trips and falls to anyone who visits or uses our premises by providing a safe working environment and, as far as is reasonably practicable, ensuring any slip, trip and fall hazards in the workplace are identified, reported and rectified.
 
 ## WORK STATIONS AND SEATING
 
@@ -636,7 +636,7 @@ A reasonable temperature of at least 16 degrees Celsius is provided during work 
 
 ## Traffic Routes
 
-Car parking and vehicle routes are organised to allow pedestrians and vehicular traffic to circulate safely.
+Car pGOPing and vehicle routes are organised to allow pedestrians and vehicular traffic to circulate safely.
 
 ## Washing and Sanitary Facilities
 
@@ -721,7 +721,7 @@ The Duty Holder shall have access to competent advice/assistance about the risks
 
 ## The MD will assume the role as the ‘Duty Holder’ and their responsibilities are as follows:
 
-* Cross Tree acts as the client and ARK Co-Living Ltd acknowledges its responsibility to consider the risks from legionella present in the water systems under its control; and is aware of the need to prevent the exposure of persons to legionella bacteria.
+* Cross Tree acts as the client and GOP Co-Living Ltd acknowledges its responsibility to consider the risks from legionella present in the water systems under its control; and is aware of the need to prevent the exposure of persons to legionella bacteria.
 * The Managing Director shall undertake and assume the duties of the “Duty Holder” and will appoint a person to take on the day-to-day responsibility for controlling any identified risk from legionella bacteria; This person shall be hereafter referred to as the “Responsible Person”.
 * The correct temperature is maintained in the hot water tanks.
 * The Duty Holder has accountability under the Health and Safety at Work etc Act to protect the health, safety and welfare of staff, students, visitors and the public, in relation to hazards arising from its activities. This duty cannot be delegated.
@@ -757,7 +757,7 @@ The Manager will take annual samples from different outlets around the premises,
 
 # Liaison with Statutory Authorities
 
-In the event of an unscheduled visit by an Inspector to the premises of, or an area of ARK Co-Living Ltd, the receiving person will:
+In the event of an unscheduled visit by an Inspector to the premises of, or an area of GOP Co-Living Ltd, the receiving person will:
 
 * Determine the Inspectors credentials and the Statutory Body they represent.
 * Request to see a form of identification.
@@ -771,20 +771,20 @@ In the event of an unscheduled visit by an Inspector to the premises of, or an a
 
 # LIFTING EQUIPMENT
 
-Lifting Equipment may be used by ARK Co-Living Ltd during its operations.
+Lifting Equipment may be used by GOP Co-Living Ltd during its operations.
 
 ## Management Controls
 
-* ARK Co-Living Ltd ensures that Lifting Equipment and accessories are of good construction, adequate strength, and fit for purpose in accordance with the Lifting Operations and Lifting Equipment Regulations.
-* ARK Co-Living Ltd ensures that all such equipment is properly maintained and regularly examined by a competent person, and such tests and inspections are recorded.
+* GOP Co-Living Ltd ensures that Lifting Equipment and accessories are of good construction, adequate strength, and fit for purpose in accordance with the Lifting Operations and Lifting Equipment Regulations.
+* GOP Co-Living Ltd ensures that all such equipment is properly maintained and regularly examined by a competent person, and such tests and inspections are recorded.
 * All lifting equipment is visually inspected prior to use and will have an in-date LOLER inspection. The frequency of LOLER inspections will be as required under the Regulations:
-* Initially, before equipment is put into service (with some exceptions for CE/UKCA marked new equipment);
+* Initially, before equipment is put into service (with some exceptions for CE/UKCA mGOPed new equipment);
 * After installation, where safety is dependent on correct installation;
 * Periodic examinations are required where lifting equipment is exposed to conditions which cause deterioration that could lead to a dangerous situation;
 * After any exceptional events such as an accident or long period without use;
 * Every six months for lifting equipment used for lifting/lowering persons. E.g. passenger lifts, access platforms, window cleaning equipment;
 * Every 12 months for all other lifting equipment not falling into either of the above categories, e.g. cranes, lifting block and runway beams.
-* Any training that is required for use of such equipment will be provided by ARK Co-Living Ltd.
+* Any training that is required for use of such equipment will be provided by GOP Co-Living Ltd.
 * Only staff who are suitably trained to use Lifting Equipment are permitted to do so.
 
 ## Employee Responsibilities
@@ -795,7 +795,7 @@ Lifting Equipment may be used by ARK Co-Living Ltd during its operations.
 
 ## Management Controls
 
-* Only authorised persons are permitted to operate ARK Co-Living Ltd lifting equipment.
+* Only authorised persons are permitted to operate GOP Co-Living Ltd lifting equipment.
 * Lifts are suitable for the purpose required.
 * Our lifts must only be used in accordance with the manufacturers’ instructions and guidelines.
 * Training will be provided and refresher training will be provided if there is an accident or near miss and the investigation identifies the cause was the unsafe use of the equipment or if the operator is observed operating the equipment in an unsafe manner.
@@ -816,7 +816,7 @@ Lifting Equipment may be used by ARK Co-Living Ltd during its operations.
 
 # LONE WORKING
 
-Within ARK Co-Living Ltd, there are a number of situations where it is possible that an employee may be called upon to work on their own. An employee working alone should never be at greater risk than any other employee at any other time. Working alone can result in risks and hazards that would otherwise be non-hazardous and not subject to a formal risk assessment.
+Within GOP Co-Living Ltd, there are a number of situations where it is possible that an employee may be called upon to work on their own. An employee working alone should never be at greater risk than any other employee at any other time. Working alone can result in risks and hazards that would otherwise be non-hazardous and not subject to a formal risk assessment.
 
 Although instances may differ, the following guidelines are to be followed in the case of employees called upon to work alone.
 
@@ -834,7 +834,7 @@ Although instances may differ, the following guidelines are to be followed in th
 
 ## LIMITATIONS
 
-***No*** member of staff will be required to work alone on behalf of ARK Co-Living Ltd in circumstances where:
+***No*** member of staff will be required to work alone on behalf of GOP Co-Living Ltd in circumstances where:
 
 * Their location is unknown.
 * They do not feel confident in carrying out lone work.
@@ -845,7 +845,7 @@ Although instances may differ, the following guidelines are to be followed in th
 
 In an emergency, always dial **999.**
 
-## ARK Co-Living Ltd STAFF CONTACT
+## GOP Co-Living Ltd STAFF CONTACT
 
 Any employee likely to be in a lone working situation must ensure that they are provided with a contact telephone number of a work colleague and that the number is immediately to hand (*e.g. stored in the employees’ mobile phone memory*).
 
@@ -945,13 +945,13 @@ Well-intentioned improvisation in an emergency, for example to rescue a casualty
 
 # MENTAL HEALTH & WELLBEING
 
-ARK Co-Living Ltd is committed to protecting the health (*mental health as well as physical health*), safety and welfare of its employees (*this extends to contractors and temporary staff*) by providing a supportive working environment.
+GOP Co-Living Ltd is committed to protecting the health (*mental health as well as physical health*), safety and welfare of its employees (*this extends to contractors and temporary staff*) by providing a supportive working environment.
 
 Mental ill health and stress are associated with many of the leading causes of disease and disability in our society. Promoting and protecting the mental wellbeing of the workforce is important for individuals’ physical health, social wellbeing, and productivity. Many factors in the workplace influence the mental wellbeing of individual employees, particular departments or organisations as a whole. Understanding and addressing the factors which affect people’s mental wellbeing at work has a wide range of benefits, both for individuals and the organisation.
 
 Mental wellbeing in the workplace is relevant to all employees and everyone can contribute to improved mental wellbeing at work. Addressing workplace mental wellbeing can help strengthen the positive, protective factors of employment, reduce risk factors for mental ill health and improve general health. It can also help promote the employment of people who have experienced mental health problems and support them once they are at work. This workplace mental wellbeing policy covers the following aspects of mental health and wellbeing:
 
-It is the policy of ARK Co-Living Ltd to provide a supportive environment for dealing with mental health related issues; however, employees must take responsibility for raising their concerns as early as possible in order for ARK Co-Living Ltd to investigate and assist with or resolve genuine problems.
+It is the policy of GOP Co-Living Ltd to provide a supportive environment for dealing with mental health related issues; however, employees must take responsibility for raising their concerns as early as possible in order for GOP Co-Living Ltd to investigate and assist with or resolve genuine problems.
 
 Some pressure at work is inevitable and total elimination of this pressure is neither possible nor desirable. Every job brings its own set of tasks, responsibilities and day-to-day problems. The pressures and demands these place upon employees are an unavoidable feature in working life.
 
@@ -965,7 +965,7 @@ Outside domestic pressures, such as family, finance, and bereavement are also po
 
 ## Management Controls
 
-ARK Co-Living Ltd has responsibility for:
+GOP Co-Living Ltd has responsibility for:
 
 * Encouraging active consideration of mental wellbeing as part of the design and implementation of procedures, processes or systems (for example when defining roles and responsibilities within their department).
 * Endeavouring to take reasonable actions to investigate the issues and reduce or eliminate the factors causing stress where reasonably practicable and appropriate (support will be provided to the manager dealing with the issue by the relevant Health & Safety Advisor or other appropriate persons as required).
@@ -990,9 +990,9 @@ Dealing with existing or potential mental health problems by:
 
 # MONITORING, AUDITING AND REVIEW
 
-ARK Co-Living Ltd will provide, so far as is reasonably practicable, a safe and healthy working environment at all times. To maintain and improve Health and Safety standards, ARK Co-Living Ltd will ensure adequate arrangements are in place to monitor and review health and safety in the workplace. Where the monitoring or review processes identify that improvements need to be made in the health and safety arrangements, ARK Co-Living Ltd will ensure that suitable and timely action is taken to make improvements.
+GOP Co-Living Ltd will provide, so far as is reasonably practicable, a safe and healthy working environment at all times. To maintain and improve Health and Safety standards, GOP Co-Living Ltd will ensure adequate arrangements are in place to monitor and review health and safety in the workplace. Where the monitoring or review processes identify that improvements need to be made in the health and safety arrangements, GOP Co-Living Ltd will ensure that suitable and timely action is taken to make improvements.
 
-To meet the requirements of the above, ARK Co-Living Ltd shall:
+To meet the requirements of the above, GOP Co-Living Ltd shall:
 
 * Ensure that work areas are monitored regularly, with written audits completed at least quarterly.
 * Co-operate with any health and safety audits/inspections undertaken by others in their area.
@@ -1022,8 +1022,8 @@ Contractors and delegates may be required to bring in personal/company owned, wo
 
 * The plug or adaptor is for a UK socket.
 * The cable and body of the equipment and/or charger do not show any signs of damage.
-* All UK plugs are marked BS 1363.
-* The equipment or charger is Class II (Double Insulated) & CE (European Standard) or UKCA (UK Standard) marked.
+* All UK plugs are mGOPed BS 1363.
+* The equipment or charger is Class II (Double Insulated) & CE (European Standard) or UKCA (UK Standard) mGOPed.
 
 Contractors must have their equipment PAT tested regularly to demonstrate that it is in a safe condition. They are also responsible for carrying out visual inspections of their equipment between tests. Equipment that has not been PAT tested or equipment which is faulty or non-compliant must not be brought on site.
 
@@ -1034,7 +1034,7 @@ The Regulations regarding Personal Protective Equipment (PPE) deal with clothing
 ## Management Controls
 
 * We assess our work activities to determine whether PPE is appropriate and necessary. The assessment will determine; What PPE is required? Is the PPE compatible with other equipment that has to be used or worn for that task? Does the PPE create any additional risks itself?
-* ARK Co-Living Ltd provide PPE to employees if they are exposed to any risks that cannot be controlled by other means.
+* GOP Co-Living Ltd provide PPE to employees if they are exposed to any risks that cannot be controlled by other means.
 * We will also provide suitable training on how and when to use the PPE provided.
 * We recognise that PPE may become damaged or defective through normal ‘wear and tear’, and on such occasions, we will remove and replace the PPE. Where PPE becomes damaged or defective through wilful neglect or misuse, employees will be required to contribute to or cover the cost of repair or replacement.
 
@@ -1091,7 +1091,7 @@ Members of the public (*this may include children*) enter the Canary Warf premis
 
 # PUBLIC HEALTH
 
-ARK Co-Living Ltd recognise that local, national or global public health concerns may affect the way we work.
+GOP Co-Living Ltd recognise that local, national or global public health concerns may affect the way we work.
 
 Public health concerns are often quickly and continually evolving and therefore every effort will be made to ensure that Government, World Health Organisation, Public Health England (PHE) and HSE advice and guidance will always take precedence and must be followed.
 
@@ -1145,7 +1145,7 @@ In the event of being involved in or witnessing an accident, incident or near mi
 
 ## (Reporting of Injuries, Diseases and Dangerous Occurrences)
 
-ARK Co-Living Ltd has a duty to prevent, as far as is reasonably practicable, accidents at work. However, despite the best efforts and intentions, accidents at work may still occur.
+GOP Co-Living Ltd has a duty to prevent, as far as is reasonably practicable, accidents at work. However, despite the best efforts and intentions, accidents at work may still occur.
 
 ## Management Controls
 
@@ -1153,7 +1153,7 @@ ARK Co-Living Ltd has a duty to prevent, as far as is reasonably practicable, ac
 * Ensure that the victim receives the correct medical attention and that any residual hazard is safely removed if necessary and as appropriate;
 * Ensure that an investigation is undertaken to prevent the accident recurring;
 * Ensure the incident is reported to the correct authority as required.
-* ARK Co-Living Ltd is responsible for investigating the accident/dangerous occurrence and completing the appropriate documentation. Details of all reportable accidents and injuries must be kept for at least three (3) years and record the following:
+* GOP Co-Living Ltd is responsible for investigating the accident/dangerous occurrence and completing the appropriate documentation. Details of all reportable accidents and injuries must be kept for at least three (3) years and record the following:
 * Date and time of the accident or dangerous occurrence;
 * Full name and occupation of the victim/s, with details of the nature of the injuries or other related condition suffered;
 * Where the accident/dangerous occurrence happened;
@@ -1161,7 +1161,7 @@ ARK Co-Living Ltd has a duty to prevent, as far as is reasonably practicable, ac
 
 ## Employee Responsibilities
 
-* You must cooperate fully with ARK Co-Living Ltd in the gathering and recording of details regarding accidents, incidents and near misses.
+* You must cooperate fully with GOP Co-Living Ltd in the gathering and recording of details regarding accidents, incidents and near misses.
 * You must always report any event that may be considered an accident, incident or near miss.
 
 ## Reportable accidents and occurrences
@@ -1459,7 +1459,7 @@ NOTE: This section can also be used in the event that the spa pool dosing system
 
 # TRAINING & SUPERVISION
 
-ARK Co-Living Ltd is committed to maintaining and developing standards of excellence in all aspects of its business. To that end, we aspire to deliver high standards of health and safety management and recognise that training and development at all levels is a key contributor in delivering those standards, both in terms of health and safety as well as occupational training. Safety training is cost effective and is proven to reduce accidents at work. ARK Co-Living Ltd has a duty to provide information, instruction, training and supervision to all employees to ensure their health, safety and welfare whilst they are at work.
+GOP Co-Living Ltd is committed to maintaining and developing standards of excellence in all aspects of its business. To that end, we aspire to deliver high standards of health and safety management and recognise that training and development at all levels is a key contributor in delivering those standards, both in terms of health and safety as well as occupational training. Safety training is cost effective and is proven to reduce accidents at work. GOP Co-Living Ltd has a duty to provide information, instruction, training and supervision to all employees to ensure their health, safety and welfare whilst they are at work.
 
 Providing appropriate information, instruction and training will:
 
@@ -1470,7 +1470,7 @@ Providing appropriate information, instruction and training will:
 
 ## Duties under the Law:
 
-The Health and Safety at Work Act 1974 places a legal duty on ARK Co-Living Ltd to ensure that staff at all levels are “competent” to undertake their duties. Competency is usually acquired through the provision of adequate information, instruction, training and supervision, plus relevant experience. However competency cannot be achieved by experience alone and therefore a structured programme of information, instruction and training is essential to ensure competency.
+The Health and Safety at Work Act 1974 places a legal duty on GOP Co-Living Ltd to ensure that staff at all levels are “competent” to undertake their duties. Competency is usually acquired through the provision of adequate information, instruction, training and supervision, plus relevant experience. However competency cannot be achieved by experience alone and therefore a structured programme of information, instruction and training is essential to ensure competency.
 
 This legal duty is expanded on by the Management of Health and Safety at Work Regulations 1999, which identifies situations where health and safety training is particularly important e.g.
 
@@ -1502,13 +1502,13 @@ There is no legal definition of the terms “information, instruction, training,
 * We ensure all employees are suitably trained to implement and comply with the Health and Safety policy.
 * Employees are trained to undertake specific tasks in relation to their job function, regardless of the location where the work is being carried out.
 * Training is provided:
-* As part of the induction programme when first commencing employment with ARK Co-Living Ltd;
+* As part of the induction programme when first commencing employment with GOP Co-Living Ltd;
 * When transferred to a different function or task, or when promoted;
 * When the equipment being used, or the system of work, has changed.
 * All levels of employees will receive training; including Directors, Management, and Supervisors.
 * All training requirements are monitored and reviewed on a regular basis to take into account any new or changed risks.
 * Wherever possible, training is conducted during working hours.
-* ARK Co-Living Ltd, as an employer, carries the ultimate responsibility for safety in our workplace. When allocating work to staff, we have a legal responsibility to ensure they have taken into account the employee’s capabilities and provide relevant training in relation to health and safety.
+* GOP Co-Living Ltd, as an employer, carries the ultimate responsibility for safety in our workplace. When allocating work to staff, we have a legal responsibility to ensure they have taken into account the employee’s capabilities and provide relevant training in relation to health and safety.
 
 ## Employee Responsibilities
 
@@ -1520,7 +1520,7 @@ There is no legal definition of the terms “information, instruction, training,
 ## Management Controls
 
 * Any required ventilation and extraction systems are provided in compliance with the Health and Safety at Work etc. Act 1974, and the Workplace (Health, Safety and Welfare) Regulations 1992.
-* Any ventilation and extraction system used by ARK Co-Living Ltd are regularly inspectedand maintained, and records kept.
+* Any ventilation and extraction system used by GOP Co-Living Ltd are regularly inspectedand maintained, and records kept.
 * All filters that are required to purify air are regularly and correctly cleaned or replaced asappropriate.
 * Any spent filters or wastes are correctly disposed of in accordance with local wastedisposal guidelines.
 
@@ -1542,7 +1542,7 @@ We recognise that vulnerable persons are at greater risk of harm than other peop
 * The work activities and processes to be undertaken;
 * Any training provided, and any risks from specified agents and processes.
 * The risk assessment will be fully communicated to all parties involved in the process.
-* ARK Co-Living Ltd will comply with all regulations on working hours and rest break requirements for vulnerable workers.
+* GOP Co-Living Ltd will comply with all regulations on working hours and rest break requirements for vulnerable workers.
 
 ## Employee Responsibilities
 
@@ -1554,7 +1554,7 @@ We recognise that vulnerable persons are at greater risk of harm than other peop
 
 # WASTE MANAGEMENT
 
-It is the policy of ARK Co-Living Ltd to conduct all aspects of our activities in accordance with approved and acceptable waste management practices, and to operate within current legislation. Legislation regarding items prohibited from entering the waste stream are continuously being updated; therefore, if there is any doubt about how a particular waste product should be dealt with, management should be contacted.
+It is the policy of GOP Co-Living Ltd to conduct all aspects of our activities in accordance with approved and acceptable waste management practices, and to operate within current legislation. Legislation regarding items prohibited from entering the waste stream are continuously being updated; therefore, if there is any doubt about how a particular waste product should be dealt with, management should be contacted.
 
 **Objectives**
 
@@ -1579,17 +1579,17 @@ It is the policy of ARK Co-Living Ltd to conduct all aspects of our activities i
 * General Waste: General waste (*i.e. neither hazardous nor clinical*) is collected on a regular basis and not left to build up.
 * Confidential Waste: Precautions are taken when disposing of confidential waste, and independent companies are contracted to dispose of confidential materials where necessary.
 * Hazardous Waste: Hazardous waste includes; IT and telecommunications, including monitors and handsets; lighting equipment, including fluorescent tubes; electrical equipment and electronic tools; monitoring and control devices; and automatic dispensers. Any hazardous waste is disposed of according to the relevant legislation.
-* Recycling: All other waste is recycled. Containers clearly marked with what can be disposed of are sited throughout ARK Co-Living Ltd and can be used to recycle; paper, newspapers, envelopes, cardboard, cans and glass, and toner and printer cartridges.Other items must not be placed in the recycling bins as this can lead to the contamination of an entire recycling load, which will then be taken to landfill.
+* Recycling: All other waste is recycled. Containers clearly mGOPed with what can be disposed of are sited throughout GOP Co-Living Ltd and can be used to recycle; paper, newspapers, envelopes, cardboard, cans and glass, and toner and printer cartridges.Other items must not be placed in the recycling bins as this can lead to the contamination of an entire recycling load, which will then be taken to landfill.
 
 ## Employee Responsibilities
 
-* All employees of ARK Co-Living Ltd have a personal responsibility for the way their conduct impacts on the environment and must ensure that they carefully consider all materials before disposing of them as waste.
+* All employees of GOP Co-Living Ltd have a personal responsibility for the way their conduct impacts on the environment and must ensure that they carefully consider all materials before disposing of them as waste.
 
 # WORK EQUIPMENT
 
 ## Management Controls
 
-* All work equipment provided by ARK Co-Living Ltd is regularly and satisfactorily inspected and maintained as required under the Provision and Use of Work Equipment Regulations (1998).
+* All work equipment provided by GOP Co-Living Ltd is regularly and satisfactorily inspected and maintained as required under the Provision and Use of Work Equipment Regulations (1998).
 * Risk Assessments and Method Statements are produced and implemented for Work Equipment.
 * Suitable training is provided for the safe use of Work Equipment.
 * Suitable Personal Protective Equipment is provided where applicable, and staff instructed to wear it.
