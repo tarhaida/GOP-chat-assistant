@@ -1,0 +1,73 @@
+# Python
+__pycache__/
+*.py[cod]
+*$py.class
+*.so
+.Python
+build/
+develop-eggs/
+dist/
+downloads/
+eggs/
+.eggs/
+lib/
+lib64/
+parts/
+sdist/
+var/
+wheels/
+*.egg-info/
+.installed.cfg
+*.egg
+
+# Virtual Environment
+.venv/
+venv/
+ENV/
+env/
+
+# Environment Variables (CRITICAL - DO NOT COMMIT)
+.env
+
+# IDE
+.vscode/
+.idea/
+*.swp
+*.swo
+*~
+
+# OS
+.DS_Store
+Thumbs.db
+
+# Logs
+*.log
+outputs/rag_assistant.log
+
+# Streamlit
+.streamlit/secrets.toml
+
+# Vector Database (optional - usually keep in Git for demo)
+# outputs/vector_db/
+
+# Large Files
+*.xlsx
+*.docx
+*.pdf
+OTHER/*.docx
+OTHER/*.doc
+OTHER/*.xlsx
+OTHER/*.pdf
+
+# Temporary Files
+*.tmp
+temp/
+
+# Jupyter Notebooks
+.ipynb_checkpoints/
+*.ipynb
+
+# pytest
+.pytest_cache/
+.coverage
+htmlcov/
