@@ -71,3 +71,6 @@ temp/
 .pytest_cache/
 .coverage
 htmlcov/
+
+# folders OTHER
+OTHER/*
