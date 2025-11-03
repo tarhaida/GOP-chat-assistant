@@ -281,7 +281,7 @@ Built for educational purposes as Project 1 (Module 1): RAG-Based AI Assistant.
 - 📍 Geneva, Switzerland
 - 📧 tarik.haida@gmail.com
 - 🔗 [LinkedIn](https://linkedin.com/in/thaida)
-- 🎓 [Ready Tensor Certification](https://app.readytensor.ai/certifications/agentic-ai-cert-U7HxeL7a)
+- 🎓 [Ready Tensor Certification](https://app.readytensor.ai/publications/gop-chat-assistant-rag-based-health-safety-compliance-system-FQSoIivtIVfv)
 
 ---
 
