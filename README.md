@@ -5,6 +5,7 @@
 [![Python 3.11+](https://img.shields.io/badge/python-3.11+-blue.svg)](https://www.python.org/downloads/)
 [![LangChain](https://img.shields.io/badge/LangChain-Latest-green.svg)](https://python.langchain.com/)
 [![Streamlit](https://img.shields.io/badge/Streamlit-Latest-red.svg)](https://streamlit.io/)
+> 📖 **[Read the full publication on Ready Tensor](https://app.readytensor.ai/publications/gop-chat-assistant-rag-based-health-safety-compliance-system-FQSoIivtIVfv)**
 
 ---
 
